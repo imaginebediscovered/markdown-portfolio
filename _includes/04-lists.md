@@ -1,0 +1,5 @@
+- I love Taylor Swift.
+- Listening to songs.
+- Playing guitar.
+- Art and craft.
+- Making dresses.
