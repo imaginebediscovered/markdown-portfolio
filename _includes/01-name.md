@@ -1,1 +1,2 @@
-Replace this with your name, and include a header.
+# Salut, Je suis Rosé.
+## À propos de moi
